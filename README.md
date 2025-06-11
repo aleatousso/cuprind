@@ -1,3 +1,2 @@
-tg - @septemberburned
-
-https://youtu.be/tF-T0q2DlWo?si=8VXdM1QSDUhUobLv
+aleatousso Rux
+uneori nu se stie care este scopul sau motivul dar e clara directia
